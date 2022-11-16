@@ -1,1 +1,1 @@
-# 8-zapyta-wiczenia
+odpowiedzi do zadan
